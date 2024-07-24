@@ -15,7 +15,7 @@ Its all about sharing code, swapping ideas, and building awesome projects togeth
 
 **Let's make some magic happen!**
 
-[Discord: [heyfang](https://discord.gg/avmzmj4QXm)]
+[Discord: [Fangify](https://discord.gg/avmzmj4QXm)]
 
 
 have a watermelon. 🍉 
