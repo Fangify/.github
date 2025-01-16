@@ -13,7 +13,6 @@ Its all about sharing code, swapping ideas, and building awesome projects togeth
 * **Show off:** Proud of your creation? Share it with the world (or at least the Fangify fam).
 * **Learn and grow:** We're always learning, and we love to help others do the same.
 
-**Let's make some magic happen!**
 
 [Discord: [Fangify](https://discord.gg/avmzmj4QXm)]
 
